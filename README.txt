@@ -1,0 +1,1 @@
+Repozytorium github na zajecia
